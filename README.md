@@ -12,7 +12,8 @@
 预售登记备案管理部门：昌平区建设委员会<br/>
 建设工程规划许可证编号：2014规(昌)建字0063号,2014规(昌)建字0058号<br/>
 物业总部电话：4006300763<br/>
-畅悦居物业电话：010-69756500
+畅悦居物业电话：010-69756500<br/>
+物业名称：北京城承物业<br/>
  
 
 北京市非紧急救助电话：12345<br/>
@@ -38,6 +39,8 @@
 https://www.12380.gov.cn/ssl/reportpeople.shtml
 
 
+BTV新闻线索爆料（微信公众账号：BTV新闻）：http://www.sohu.com/a/241334709_99966696
+
 
 # 法律条文
 
@@ -46,6 +49,9 @@ https://www.12380.gov.cn/ssl/reportpeople.shtml
 
 # 相关新闻
 **为了公平公正，使有相关文件历史可查并保护证据，所有内容都有图片留存。**
+
+2019-05-30 10:18[图：](HistoricalData/news/成贱.猖约剧让我见识到了这是北京.png)
+[成贱.猖约剧，让我见识到了这是北京！](https://mp.weixin.qq.com/s/iRTZICpbBZW3vWC0fnQC6Q)
 
 2019-05-28[图：](HistoricalData/news/违建“零容忍”！接下来北京将严查违建，一经发现严肃查处！.png)
 [违建“零容忍”！接下来北京将严查违建，一经发现严肃查处！](https://c.m.163.com/news/a/EG8MENHH0525PG7E.html?spss=newsapp)
@@ -66,8 +72,12 @@ https://www.12380.gov.cn/ssl/reportpeople.shtml
 ---
 ---
 
+2019-05-30 12:43[图：]()
+[北京以陈海涛为首的黑社会性质组织犯罪团伙覆灭记](https://mp.weixin.qq.com/s/TV_AmuTXro4MQlCosA8Q8Q)
+
 2019-05-27[图：]()
 [北京市管干部任前公示 徐贱云拟任区委书记](https://news.html5.qq.com/share/7632367055439470914)
+
 
 2017-07-05 08:49[图：]()
 [如何解聘“黑心物业”?](https://house.focus.cn/zixun/7e1dc5383a365a29.html)
