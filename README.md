@@ -72,8 +72,17 @@ BTV新闻线索爆料（微信公众账号：BTV新闻）：http://www.sohu.com/
 ---
 ---
 
+2019-05-31 13:33[图：]()
+[于长辉任北京昌平区委书记 侯君舒不再担任(图|简历)](http://district.ce.cn/newarea/sddy/201905/31/t20190531_32235537.shtml)
+
+2019-05-30 12:31[图：]()
+[蔡奇点评直接到街乡镇，这十个街乡镇将由专班督导](https://mp.weixin.qq.com/s/FHS2pw6tBqiPICpxf5Fv_A)
+
 2019-05-30 12:43[图：]()
 [北京以陈海涛为首的黑社会性质组织犯罪团伙覆灭记](https://mp.weixin.qq.com/s/TV_AmuTXro4MQlCosA8Q8Q)
+
+2019-05-29 22:43[图：]()
+[当小区难以挽回地走向衰败](https://media.weibo.cn/article?id=2309404377417056706871)
 
 2019-05-27[图：]()
 [北京市管干部任前公示 徐贱云拟任区委书记](https://news.html5.qq.com/share/7632367055439470914)
